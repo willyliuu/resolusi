@@ -1,0 +1,2 @@
+# resolusi
+resolusi hidup
